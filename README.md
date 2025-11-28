@@ -1,4 +1,4 @@
-INTEGRANTES 
+INTEGRANTES:
 Gladys Dayani Fajardo - gladysfajardo41@gmail.com
 Ivan Lautaro Nuñez - nunezivan55@gmail.com
 
